@@ -1,2 +1,0 @@
-# Anh
-ảnh nền MT
